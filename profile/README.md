@@ -4,7 +4,7 @@ Welcome to housepal ✌️, let's build 🧱🚧🏗️👷👷‍♀️🧑�
 
 
 
-![image](https://user-images.githubusercontent.com/65332951/214278122-bbc7ceac-10e4-4de9-a3c6-e0dcc9fe452d.png)
+![groupLogoFull](https://user-images.githubusercontent.com/65332951/214278264-49c7df64-8de6-4b90-b6ba-3407e2aa2538.JPG)
 
 
 
